@@ -4,8 +4,8 @@ Here you can add your name! =D
 ## 1 - Alex
 ### 2 - Chris
 #### 3 - Anth
-##### 4 - 
-###### 5 - 
+##### 4 - Liz
+###### 5 - Livia (great idea btw) :-) 
 ####### 6 - 
 ######## 7 - 
 ######### 8 - 
