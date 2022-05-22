@@ -6,7 +6,7 @@ Here you can add your name! =D
 #### 3 - Anth
 ##### 4 - Liz
 ###### 5 - Livia (great idea btw) :-) 
-####### 6 - 
+####### 6 - Yue
 ######## 7 - 
 ######### 8 - 
 ########## 9 - 
